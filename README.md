@@ -23,8 +23,32 @@ fjdslaj}--
 Y¥Y
 
 clearq
+ldfjkljflsajkfjsdfkjflsd
+dskjflsjdf
+kfjdsalkjflsjkl
+dskfjlds
 
-ls
-ls
+kdlsjflkdsjk
+f
+ttt
+jsffdsfdsfdskjljsal
+
+
+fdsf
+fdsf
+dfs
+dfs
+wq
+
+kjdlf
+dskfjlkds
+dskljflksd
+dsjflkdsjlkfjdskljflsdjfksdjfkljdlkfjsd
+dfjsljfksldjflkjsdlkfjsdlkjfsd
+dfksjdlkfjdlskfjlkdjflkjsdl
+sdfkdlkfjsld
+Ekdl;ksdlk;sad
+it
+
 
 
